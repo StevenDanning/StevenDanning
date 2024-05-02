@@ -3,8 +3,8 @@
 - 🌱 I’m currently learning about gurls
 - 💞️ I’m looking to collaborate with a girl in bed
 - 📫 How to reach me i don't know
-- 😄 Pronouns: wtf
-- ⚡ Fun fact: im a man
+- 😄 Pronouns: it
+- ⚡ Fun fact: im a dude
 
 <!---
 StevenDanning/StevenDanning is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
